@@ -1,0 +1,1 @@
+# Tableau Certification Pathways
